@@ -1,1 +1,1 @@
-# [Notion](https://in-hyeokjang.notion.site/Ethan-c6951f05056149679b12d237b8fe53fe)
+# [In-HyeokJang의 Notion](https://in-hyeokjang.notion.site/Ethan-c6951f05056149679b12d237b8fe53fe)
